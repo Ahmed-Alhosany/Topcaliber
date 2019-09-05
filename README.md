@@ -35,9 +35,9 @@ Screenshot
 About me
 -----------
  You can follow me at:
-1. [Linkedin](https://github.com/AhmeHalim)
-2. [Linkedin](https://www.linkedin.com/in/ahmed-abd-el-halim/)
-3. [Facebook](https://www.facebook.com/ahmed.elgheny.14)
+1. [Linkedin](https://www.linkedin.com/in/ahmed-alhoseny-907793150/)
+2. [Behance](https://www.behance.net/ahmed-alhosany)
+3. [Facebook](https://www.facebook.com/mido.hisham.777)
 
   
 
